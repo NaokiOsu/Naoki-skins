@@ -23,3 +23,6 @@ Those are the skins i use the most and the skins i likes
 # [dracula (funorange)](https://joofixd.s-ul.eu/AViONqPI)
 ![](https://osu.ppy.sh/ss/13421944/da9d)
 
+# [original one] (https://morgan.s-ul.eu/LyX39Wqy)(https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)(https://files.catbox.moe/qnqieb.osk)
+![](https://osu.ppy.sh/ss/14454795/597f)
+
