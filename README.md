@@ -1,6 +1,9 @@
 # Naoki-used-skins
 Those are the skins i use the most ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [-!Sad Cookie](https://www.mediafire.com/file/xsfsprduamckxf5/-_%21Sad_Cookie.osk/file)
+![](https://osu.gatari.pw/ss/YI4HE7D0.jpg)
+
 # [vaxei dt](https://joofixd.s-ul.eu/ouJZqGd1)
 ![](https://osu.ppy.sh/ss/13421907/707a)
 
