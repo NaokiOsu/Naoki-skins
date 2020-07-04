@@ -4,9 +4,6 @@ Those are the skins i use the most ( + LoliAngelie github : https://github.com/N
 # [Bartek22830xOribiaHime](https://drive.google.com/file/d/137JFFnsVooGSBo3Bn-alaHkBXDB2XD0l/view?usp=drivesdk)
 ![](https://i.imgur.com/KBt99NQ.jpg)
 
-# [Bartek22830xOribiaHime](https://drive.google.com/file/d/137JFFnsVooGSBo3Bn-alaHkBXDB2XD0l/view?usp=drivesdk)
-![](https://i.imgur.com/KBt99NQ.jpg)
-
 # [--Dare](https://drive.google.com/file/d/1ATkmJKSeaWpJQq41lBxIduMg7VzkIhO7/view?usp=drivesdk)
 ![](https://i.imgur.com/7HFCIbC.jpg)
 
