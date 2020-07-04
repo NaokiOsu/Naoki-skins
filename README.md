@@ -1,4 +1,4 @@
-# Naoki-used-skins
+# Naoki used skins
 Those are the skins i use the most ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
 # [Bartek22830xOribiaHime](https://drive.google.com/file/d/137JFFnsVooGSBo3Bn-alaHkBXDB2XD0l/view?usp=drivesdk)
