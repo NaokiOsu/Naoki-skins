@@ -1,8 +1,8 @@
 # Naoki used skins
 Those are the skins i use the most ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
-# [--Dare](https://drive.google.com/file/d/1ATkmJKSeaWpJQq41lBxIduMg7VzkIhO7/view?usp=drivesdk)
-![](https://i.imgur.com/7HFCIbC.jpg)
+# mythro aokana (https://drive.google.com/file/d/1pHlEiHAe1S3dci1QxPdHpCPP4ONpjDxQ/view?usp=drivesdk)
+![](https://i.imgur.com/LJL1h0m.jpeg)
 
 # [beta13](https://www.mediafire.com/file/sf110gclev3j7yi/beta13.osk/file)
 ![](https://osu.gatari.pw/ss/S5QY4T8U.jpg)
