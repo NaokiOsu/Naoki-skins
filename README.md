@@ -1,5 +1,9 @@
 # Naoki skins
-Those are the skins I use the most ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
+( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
+
+# [!!+wwsou+netnesonya](https://drive.google.com/file/d/1EckKjcRz2UqxkI-h0lAuIYwxeGf6JCJB/view?usp=drivesdk)
+![](https://i.imgur.com/EgqDAve.png)
+
 
 # [- 『BlooXoo』 -](https://drive.google.com/file/d/1lZMnvuDsW1U7gi57fnq7vZ7dU-aEP4WU/view?usp=drivesdk)
 ![](https://i.imgur.com/Q0UjdoO.jpg)
