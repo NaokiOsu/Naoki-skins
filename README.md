@@ -1,6 +1,10 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [-A21 red azurlane](https://drive.google.com/file/d/1Aoo6vHcZwmHxnFG4XFLqw9J0tRes6-x2/view?usp=drivesdk)
+![](https://i.imgur.com/quDpTek.jpg)
+
+
 # [!!+wwsou+netnesonya](https://drive.google.com/file/d/1EckKjcRz2UqxkI-h0lAuIYwxeGf6JCJB/view?usp=drivesdk)
 ![](https://i.imgur.com/mIxfLCZ.png)
 
