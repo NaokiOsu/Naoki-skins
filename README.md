@@ -34,25 +34,31 @@
 
 # [- # Naoki](https://drive.google.com/file/d/1EFiLvGeQPm3S0Vxv4YLDe28JwO6bnrvi/view?usp=drivesdk)
 ![](https://i.imgur.com/iWuUg8i.jpg)
-(working on it)
+(working on it (update : not working on it) )
 
 # [mythro aokana](https://drive.google.com/file/d/1pHlEiHAe1S3dci1QxPdHpCPP4ONpjDxQ/view?usp=drivesdk)
 ![](https://i.imgur.com/LJL1h0m.jpeg)
 
+
 # [beta13](https://www.mediafire.com/file/sf110gclev3j7yi/beta13.osk/file)
-![](https://osu.gatari.pw/ss/S5QY4T8U.jpg)
+![](https://i.imgur.com/FWa2ZYC.jpeg)
+
 
 # [-!Sad Cookie](https://www.mediafire.com/file/xsfsprduamckxf5/-_%21Sad_Cookie.osk/file)
-![](https://osu.gatari.pw/ss/YI4HE7D0.jpg)
+![](https://i.imgur.com/gQZFPFw.jpeg)
+
 
 # [vaxei dt](https://joofixd.s-ul.eu/ouJZqGd1)
 ![](https://osu.ppy.sh/ss/13421907/707a)
 
+
 # [Aireu 2019-11-20](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk) 
 ![](https://i.imgur.com/ql0lrfY.png)
 
+
 # [Cookiezi 16 2016-01-09](https://joofixd.s-ul.eu/br46LPGc)
 ![](https://osu.ppy.sh/ss/14823912/c19f)
+
 
 # [Kantoku Skin by RuRu (SnowWhite)](https://joofixd.s-ul.eu/paFbrEnp)
 ![](https://osu.ppy.sh/ss/14126836/e5d4)
