@@ -1,6 +1,10 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [Rektygon (NaokiEdit)](https://www.mediafire.com/file/uhcobomizw6p042/Rektygon+(NaokiEdit).osk/file)
+![](https://cdn.discordapp.com/attachments/715147940208967731/792572217446760488/screenshot1031.jpg)
+
+
 # [MonkoEdit](https://drive.google.com/file/d/1RmCQEXu96eCemD4ddYiVwM7Z49AX-xyv/view?usp=drivesdk)
 ![](https://i.imgur.com/0cwdZVU.jpg)
 
