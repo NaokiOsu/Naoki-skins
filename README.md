@@ -1,6 +1,9 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [- ! 私の気持ち](https://drive.google.com/file/d/1t5vMCQbd7hbWjCcfQm_xZBZEHNZAtBG7/view?usp=drivesdk)
+![](https://cdn.discordapp.com/attachments/550356385221574706/793450494747738112/screenshot1229.jpg)
+
 # [Rektygon (NaokiEdit)](https://www.mediafire.com/file/uhcobomizw6p042/Rektygon+(NaokiEdit).osk/file)
 ![](https://cdn.discordapp.com/attachments/715147940208967731/792572217446760488/screenshot1031.jpg)
 Thanks Riyuka <3
