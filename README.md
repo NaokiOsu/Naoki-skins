@@ -1,6 +1,11 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [Kyle Blue](https://drive.google.com/file/d/1e1mav03bRkPSCNUaB6bF4aiQwX5iBYwn/view?usp=drivesdk)
+![](https://i.imgur.com/6RO3ISe.png)
+without the background bar
+
+
 # [-          #AQN Skin『Replay Editor』 #-](https://drive.google.com/file/d/1lRWMTLw9Co14R_Z-c7L9uAvxe1ild3hV/view?usp=drivesdk)
 ![](https://cdn.discordapp.com/attachments/570705962432725002/795081575268089866/screenshot1240.jpg)
 
