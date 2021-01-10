@@ -1,6 +1,12 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [-        # Frukto (3.0) Outline](https://drive.google.com/file/d/1LxTLQcEcPa9iJ9f4jHAvuFv3_LTVuvQ6/view?usp=drivesdk)
+![](https://i.imgur.com/zm3BAmn.png)
+
+# [mathi ensalada](https://drive.google.com/file/d/1izwn9O-oz854r00Cly5BGvJjcvQTIA59/view?usp=drivesdk)
+![](https://i.imgur.com/Z5nZvzp.png)
+
 # [Kyle Blue](https://drive.google.com/file/d/1e1mav03bRkPSCNUaB6bF4aiQwX5iBYwn/view?usp=drivesdk)
 ![](https://i.imgur.com/6RO3ISe.png)
 without the background bar
