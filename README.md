@@ -1,6 +1,11 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+
+# [OwO](https://drive.google.com/file/d/1Y4NdX7azqkE6SBu7HZ482VDuO4Fi5SF0/view?usp=drivesdk)
+![](https://i.imgur.com/Geq8hiC.jpg)
+calangi skin
+
 # [-        # Frukto (3.0) Outline](https://drive.google.com/file/d/1LxTLQcEcPa9iJ9f4jHAvuFv3_LTVuvQ6/view?usp=drivesdk)
 ![](https://i.imgur.com/zm3BAmn.png)
 
