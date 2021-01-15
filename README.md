@@ -17,10 +17,6 @@ calangi skin
 without the background bar
 
 
-# [-          #AQN Skin『Replay Editor』 #-](https://drive.google.com/file/d/1lRWMTLw9Co14R_Z-c7L9uAvxe1ild3hV/view?usp=drivesdk)
-![](https://cdn.discordapp.com/attachments/570705962432725002/795081575268089866/screenshot1240.jpg)
-
-
 # [- ! 私の気持ち](https://drive.google.com/file/d/1t5vMCQbd7hbWjCcfQm_xZBZEHNZAtBG7/view?usp=drivesdk)
 ![](https://cdn.discordapp.com/attachments/550356385221574706/793450494747738112/screenshot1229.jpg)
 
