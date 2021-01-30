@@ -4,6 +4,9 @@
 # [Vinno & Kafuuu](https://drive.google.com/file/d/1ATW-wUCk1goAfVTXZ5Y5iuHA4V8i6y5w/view?usp=drivesdk)
 ![](https://i.imgur.com/44t2Tqd.png)
 
+# [Hasawa Kraenes - Dar_Bojiy_v1.6 (Haenes ver.)](https://drive.google.com/file/d/1xu6ARL1a1Xq7_cEaXNlt0CnMfkJEHJlv/view?usp=drivesdk)
+![](https://i.imgur.com/JYkf07B.png)
+
 # [- - [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5](https://drive.google.com/file/d/1YbbmwrgHxVjQtDiQUzZqDIQ4r2gOVDHf/view?usp=drivesdk)
 ![](https://i.imgur.com/ndDIIBs.png)
 
