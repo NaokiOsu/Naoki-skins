@@ -1,9 +1,11 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [Vinno & Kafuuu](https://drive.google.com/file/d/1ATW-wUCk1goAfVTXZ5Y5iuHA4V8i6y5w/view?usp=drivesdk)
+![](https://i.imgur.com/44t2Tqd.png)
+
 # [- - [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5](https://drive.google.com/file/d/1YbbmwrgHxVjQtDiQUzZqDIQ4r2gOVDHf/view?usp=drivesdk)
 ![](https://i.imgur.com/ndDIIBs.png)
-
 
 # [OwO](https://drive.google.com/file/d/1Y4NdX7azqkE6SBu7HZ482VDuO4Fi5SF0/view?usp=drivesdk)
 ![](https://i.imgur.com/Geq8hiC.jpg)
