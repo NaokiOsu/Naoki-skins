@@ -1,6 +1,10 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [# oepep main 3.0](https://drive.google.com/file/d/1ExWRGGUDGblkQXep-shtH4V8zk7Vcrhq/view)
+![](https://i.imgur.com/fa1mL46.png)
+
+
 # [Vinno & Kafuuu](https://drive.google.com/file/d/1ATW-wUCk1goAfVTXZ5Y5iuHA4V8i6y5w/view?usp=drivesdk)
 ![](https://i.imgur.com/44t2Tqd.png)
 
