@@ -1,6 +1,9 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [-        #Cardcaptor Sakura (SK)](https://drive.google.com/file/d/1Bpt3gvR4trX9uxEK7iRuo8vnUnOls0lr/view?usp=drivesdk)
+![](https://i.imgur.com/uaAJMQv.png)
+
 # [# oepep main 3.0](https://drive.google.com/file/d/1ExWRGGUDGblkQXep-shtH4V8zk7Vcrhq/view)
 ![](https://i.imgur.com/fa1mL46.png)
 
