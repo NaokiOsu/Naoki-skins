@@ -1,6 +1,10 @@
 # Naoki skins
 ( + LoliAngelie github : https://github.com/NaokiOsu/LoliAngelie-skins )
 
+# [- # 『VOCALOID4』 ~ Kizuna Akari -](https://drive.google.com/file/d/1dwxgzqO8GTDJeRgSAXIv-av_18XDdr4t/view)
+![](https://i.imgur.com/RXyqSyl.png)
+
+
 # [-        #Cardcaptor Sakura (SK)](https://drive.google.com/file/d/1Bpt3gvR4trX9uxEK7iRuo8vnUnOls0lr/view?usp=drivesdk)
 ![](https://i.imgur.com/uaAJMQv.png)
 
